@@ -16,6 +16,10 @@ A página da web tem o propósito de ser um portfólio do projeto Oracle ONE na 
 
 
 
+https://github.com/brittoruth/challenge-one-portfolio-br/assets/123418514/343ce305-3da4-42af-927e-4bdb5ec3e35b
+
+
+
 
 
 
